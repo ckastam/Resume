@@ -6,6 +6,6 @@ In 2013, he moved to UK due to the political and financial crisis in Greece to c
 
 Mr. Kastamonitis has worked on the R&D field as a Support Engineer for a global customer-oriented organisation and as a IT Support Technician for a global semiconductor company.
 
-In 2023 he decided to relocate back to Greece to continue his professional career, following the “Brain Gain” movement that emerged after the reconstruction of the Greek economy. This radical decision made him to take a pivotal shift on his career in Aviation Ground Handling and by 2024 he started working as a Turnaround Coordinator for Swissport Hellas Sud and SkyServ at the CFU airport. Recently, he landed a position as a Network Engineer for the SYZEUXIS II project
+In 2023 he decided to relocate back to Greece to continue his professional career, following the “Brain Gain” movement that emerged after the reconstruction of the Greek economy. This radical decision made him to take a pivotal shift on his career in Aviation Ground Handling and by 2024 he started working as a Turnaround Coordinator for Swissport Hellas Sud and SkyServ at the CFU airport. Recently, he landed a position as a Network Engineer on the SYZEUXIS II (ΣΥΖΕΥΞΙΣ ΙΙ) project.
 
 Mr. Kastamonitis is also a member of European Installation Bus Association (KNX-EIBA) as a licensed EIB Partner, and recently a member of various professional groups in Cambridge such as the Cambridge Wireless Community.
